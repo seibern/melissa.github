@@ -2,9 +2,9 @@
 
 ![alt text](https://scontent.fclo3-1.fna.fbcdn.net/v/t1.0-9/48374672_10218353106207634_4953489394267848704_o.jpg?_nc_cat=105&_nc_ht=scontent.fclo3-1.fna&oh=1800d58daf25d8fd2f15ba0a11dd6101&oe=5CC43DA9)
 
-Amante de los perros
+holi, estoy en 6 semestre de ingenieria de sistemas
 
-![alt text](https://www.instagram.com/p/BXyDX8_lbrLXZRg6_TRbJovYKTjYTg8EojT_dE0/)
+![alt text](https://scontent.fclo3-1.fna.fbcdn.net/v/t1.0-9/26994359_10215720420912147_459531987083211732_n.jpg?_nc_cat=106&_nc_ht=scontent.fclo3-1.fna&oh=b78b3ab20c5b06996d62eef371988979&oe=5CF61472)
 
 ### Markdown
 
